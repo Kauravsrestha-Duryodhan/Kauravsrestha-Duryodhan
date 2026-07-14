@@ -1,4 +1,4 @@
-# 👋 Hi, I’m Kauravsrestha-Duryodhan
+# 👋 Hi, I’m Pwnxotus Aka Duryodhan 
 
 Welcome to my GitHub profile! I’m passionate about coding, technology, and continuous learning.
 
